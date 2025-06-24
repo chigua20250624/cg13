@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://aw7-04.pages.dev/">暗网TV官网</a>
 
-点击访问：<a href="https://50dh-05.pages.dev/>50度灰app</a>
+点击访问：<a href="https://50dh-05.pages.dev/">50度灰app</a>
 
 点击访问：<a href="https://dy6-04.pages.dev/">抖阴app下载</a>
 
